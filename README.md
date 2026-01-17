@@ -35,6 +35,3 @@ Microsoft Office
 Entre otros.
 
 Puedes contactarme en aguso0123oliva@gmail.com
-Entre otros.
-
-Puedes contactarme en aguso0123oliva@gmail.com
